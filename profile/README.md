@@ -1,10 +1,15 @@
-## Register on Predik App
+## Register or Download Predik App
 
-Click the register button below to join the **Predik predict app** and start exploring prediction opportunities.
+Click the button below to **register or download the Predik predict app** and start exploring prediction opportunities.
 
 [![Register on Predik App](https://i.imageupload.app/08a1c06da715c0231ed3.jpeg)](https://share.im556677.xyz/invitee-sign-in?inviteCode=PREDIK100)
 
+Or use the download option below:
+
+[![Download Predik App](https://i.imageupload.app/509ab2a7fc0ee2a50c54.jpeg)](https://share.im556677.xyz/invitee-sign-in?inviteCode=PREDIK100)
+
 After registering on the Predik predict app, users can access the platform, explore prediction markets, and join the growing prediction community.
+
 ---
 # Predik App – Predict It. Trade It. Earn It.
 
