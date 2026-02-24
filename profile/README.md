@@ -10,7 +10,7 @@ The **Predik predict app** is gaining popularity among users searching for a rel
 
 Click the register button below to join the **Predik predict app** and start exploring prediction opportunities.
 
-[![Register on Predik App](https://i.imageupload.app/08a1c06da715c0231ed3.jpeg)](https://share.im556677.xyz/invitee-sign-in?inviteCode=PREDIK100)
+                                                                              [![Register on Predik App](https://i.imageupload.app/08a1c06da715c0231ed3.jpeg)](https://share.im556677.xyz/invitee-sign-in?inviteCode=PREDIK100)
 
 After registering on the Predik predict app, users can access the platform, explore prediction markets, and join the growing prediction community.
 ---
